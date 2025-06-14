@@ -57,8 +57,7 @@
 ## 📫 Let's Connect
 
 - 📧 Email: osama608joumaa@gmail.com
-- 💼 [LinkedIn (optional – add your link)](f)
-- 🧠 [Portfolio (optional – if you have one)](f)
+
 
 ---
 
